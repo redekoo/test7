@@ -48,9 +48,9 @@ I get it, you want to make some extra cash and youre looking for ways to do it.
 
 Well, let me tell you, one way that people have beean trying to make a quick buck is by using Cash App Money Generator Tool.sdfasd
 
-GET LINK>>>>>> https://cutt.ly/NwORDl0l
+GET LINK>>>>>> https://hackzworld.xyz/cash-app-free-money/
 
-GET LINK>>>>>> https://cutt.ly/NwORDl0l
+GET LINK>>>>>> https://hackzworld.xyz/cash-app-free-money/
 
 How to Use Cash App Money Generator Tool?
 
